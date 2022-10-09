@@ -1,1 +1,1 @@
-Please wait for few minu minutes or come back again later😊
+Please wait for few minutes or come back again later😊
